@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @6942021
+- 👋 Hi, I’m brownboi
 - 👀 I’m interested in balls
 - 🌱 I’m currently learning about balls
 - 💞️ I’m looking to collaborate on balls
